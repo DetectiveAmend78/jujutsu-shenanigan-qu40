@@ -1,4 +1,4 @@
-# 
+# Experience jujutsu shenanigans like never before with professional Scripts for jujutsu shenanigans, the #1 Script. Includes private server access and
 
 
 
